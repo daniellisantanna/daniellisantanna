@@ -1,4 +1,14 @@
-### Hi there 👋
+### Hey 👋
+
+My name is Danielli Sant' Anna 👩🏼‍🇧🇷
+
+I'm A student of the technical course in informatica for internet since 2021 a 2022. 💻
+
+I'm passionate about solving problems and learning. Always open to new challenges and ready to face changes.
+
+🌍 "Quanto mais eu sei, mais eu sou" 🧠
+📍 From RS-Brazil
+
 
 <!--
 **daniellisantanna/daniellisantanna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
