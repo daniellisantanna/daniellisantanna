@@ -10,6 +10,7 @@ I'm passionate about solving problems and learning. Always open to new challenge
 📍 From RS-Brazil
 
 Reach me out  👇 
+
 [![Youtube Badge](https://img.shields.io/badge/-Youtube-FF0000?style=flat-square&labelColor=FF0000&logo=youtube&logoColor=white&link=https://www.youtube.com/channel/UCRhKK6VrISnIWPJjYxBPKnA/videos)](https://www.youtube.com/channel/UCiq74aYLuqIwEEzxr4Sv5wg)[![Linkedin Badge](https://img.shields.io/badge/-LinkedIn-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/isadora-rodrigues-stangarlin-48402b141/)](https://www.linkedin.com/in/daniellisantanna/)
 
 
