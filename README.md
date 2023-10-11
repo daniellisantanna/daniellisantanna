@@ -2,7 +2,8 @@
 
 My name is Danielli Sant' Anna 👩 
 
-I'm A student of the technical course in informatica for internet since 2021 a 2022. 💻
+I'm technical in informatica for internet since 2021 a 2022. 💻
+I'm A student of the ADS in University Feevale since 2023 a 2024. 
 
 I'm passionate about solving problems and learning. Always open to new challenges and ready to face changes.
 
