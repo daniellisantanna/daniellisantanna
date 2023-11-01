@@ -7,8 +7,6 @@ I'm A student of the ADS in University Feevale since 2023 a 2024.
 
 I'm passionate about solving problems and learning. Always open to new challenges and ready to face changes.
 
-🌍 "Quanto mais eu sei, mais eu sou" 🧠
-
 -📍 From RS-Brazil
 
 Reach me out  👇 
